@@ -1,2 +1,2 @@
-# mistersingh.github.io
+# [MisterSingh](https://mistersingh.github.io/)
 Profile
